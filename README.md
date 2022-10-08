@@ -1,4 +1,4 @@
-🔭 I’m currently working as Data Scientist
+🔭 I currently work as Data Scientist
 
 🌱 I’m currently learning Artificial Intelligence(MSc.)
 
